@@ -61,7 +61,7 @@ I worked as part of a development team and contributed to the following features
 ![Screen6](https://github.com/Mashael225/Rafiqni-Showcase/blob/main/%D9%84%D9%82%D8%B7%D8%A9%20%D8%B4%D8%A7%D8%B4%D8%A9%202026-04-15%20033846.png)
 
 #### Screen 7
-![Screen7](034016 15-04-2026 لقطة شاشة.png)
+![Screen7](https://github.com/Mashael225/Rafiqni-Showcase/blob/main/%D9%84%D9%82%D8%B7%D8%A9%20%D8%B4%D8%A7%D8%B4%D8%A9%202026-04-15%20034016.png)
 
 ---
 
